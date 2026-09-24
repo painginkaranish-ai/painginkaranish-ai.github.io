@@ -1,1 +1,1 @@
-# psinginkaranish-ai.github.io
+# painginkaranish-ai.github.io
